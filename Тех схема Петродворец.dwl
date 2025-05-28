@@ -1,3 +1,0 @@
-pokla
-LAPTOP-EL6GK8EN 
-27 мая 2025 г.  20:06:18
